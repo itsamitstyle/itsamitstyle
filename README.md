@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @itsamitstyle
+- 👋 Hi, I’m @creative india
 - 👀 I’m interested in ...robtic 
 - 🌱 I’m currently learning ... artificial intelligence 
 - 💞️ I’m looking to collaborate on ...
